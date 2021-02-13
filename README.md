@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on building massive systems with visa developers
 - 📫 How to reach me... you can't haha
 - I don't care about stupid unlikely shit. i could seriously care less
+- i led the nation in sales one year for a third party company selling cable tv...
 
 <!---
 softwareJ/softwareJ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
