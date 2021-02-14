@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @softwareJ
-- 👀 I’m interested in creating simple massive systems that make a fuck ton of money
+- 👀 I’m interested in creating simple massive systems that make a boat loads of money -- shick beanies tounge out
 - 🌱 I’m currently learning nothing more than i have to
-- 💞️ I’m looking to collaborate on building massive systems with visa developers
-- 📫 How to reach me... you can't haha
+- 💞️ I’m looking to collaborate on building massive systems with visa devs .. #vizadevs.net #worldwide #shickbeanies
+- 📫 How to reach me... you can't haha -- thaje shick dOde
 
 <!---
 softwareJ/softwareJ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
