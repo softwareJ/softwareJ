@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @softwareJ
-- 👀 I’m interested in creating simple massive systems
+- 👀 I’m interested in creating massive systems
 - 🌱 I’m currently learning nothing more than i have to
 - 💞️ I’m looking to collaborate on building massive systems with visa devs .. #vizadevs.net #worldwide #shickbeanies
 - 📫 How to reach me... you can't haha -- thaje shick dOde
